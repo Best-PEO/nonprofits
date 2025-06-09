@@ -1,4 +1,4 @@
-"<h1>Best PEO for Nonprofits in 2025</h1>
+<h1>Best PEO for Nonprofits in 2025</h1>
 <p>Finding the best PEO for nonprofits can make the difference between maximizing your mission's impact and getting caught up in HR and compliance paperwork. Nonprofit leaders often share how HR administrative burdens and regulatory complexity pull them away from the heart of their work.</p>
 <p>After years researching PEOs—including direct use, user reviews, and detailed feature and pricing analysis—I've curated nonprofit-appropriate recommendations for 2025. This guide focuses on the PEOs that truly help nonprofits streamline HR, minimize risk, and free up time and money for their cause.</p>
 <p>My goal is to help you choose a PEO partner that amplifies your nonprofit’s mission and makes compliance, payroll, and benefits much less stressful.</p>
